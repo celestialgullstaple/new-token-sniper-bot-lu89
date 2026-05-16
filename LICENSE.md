@@ -1,4 +1,4 @@
-# 
+# instant new token sniper bot | pump-detection + volume-spike-detection offers the most advanced new token sniper bot, with pump-detection and volume-spike-detection. Ideal for
 
 
 
